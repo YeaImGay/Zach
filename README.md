@@ -1,2 +1,2 @@
 # Zach
-I want todie
+I want to die
